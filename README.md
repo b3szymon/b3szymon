@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @b3szymon
+- 👀 I’m student in SP98 in Krakow
+- 🌱 I love eat and coding in python
+- 💞️ My best friends are Kajtek and Wojtek
+- 📫 My discord: Szynon Baleron#1337
